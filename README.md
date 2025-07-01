@@ -1,8 +1,8 @@
 - 👋 Hi, I’m @jaisonsimon
 - 👀 I’m interested in figure drawing,creativity and travelling
 - 🌱 My goal is to follow Christ and spread the evangelion †
-- 📫 How to reach me:Here is my gmail:jaisonsimon0@gmail.com and my instagram art account:@sereneorb
-- ⚡ Fun fact:I love being silly :-P
+- 📫 My gmail:jaisonsimon0@gmail.com and my instagram art account:@sereneorb
+- ⚡ Fun fact:I love being silly and crazy :-P
 
 <!---
 jaisonsimon/jaisonsimon is a ✨ special ✨ repository because its `README.md` (this file) appears on your GitHub profile.
